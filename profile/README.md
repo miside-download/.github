@@ -1,6 +1,7 @@
 # Miside Download APK 2025 (TuDo Desbloqueado) Grátis para Android IOS Oficial Versão
 Para quem ainda não conhece, Miside é um jogo de estratégia e sobrevivência que mistura elementos de aventura e mistério. Ele desafia os jogadores a resolverem enigmas, gerenciarem recursos e explorarem ambientes misteriosos, tudo enquanto enfrentam desafios inesperados. O grande diferencial do jogo está na possibilidade de personalização através de mods, que permitem alterar elementos visuais, mecânicas e até mesmo criar novos mapas e missões.
 ## 🔗🌐🔗 Link Download: [Miside Download](https://apktudo.com)
+## Participe da comunidade APKTudo para baixar os jogos mais recentes gratuitamente: [Aqui](https://t.me/apktudo)
 ![Screenshot 2024-12-18 105843](https://github.com/user-attachments/assets/8c13eafc-6b86-4365-9079-6df25a8f6990)
 
 ## Por Que Optar Pelo Miside Download?
